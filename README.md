@@ -1,0 +1,1 @@
+Songsen Health is a research and design studio exploring the intersection of arts, planetary health and immersive technology. Our work is aimed at visualising invisible manifestations of mental illness and advancements in the tech world striving to improve mental healthcare.  We develop tools that make the connections between human and environmental health more tangible. 
